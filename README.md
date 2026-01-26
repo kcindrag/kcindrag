@@ -3,4 +3,4 @@
 
 Main github for zombies, descendants, & K.C undercover poniez, but I will most likely have some other disney channel related poniez with this github too.
 
-ㅤㅤㅤㅤㅤㅤㅤㅤUsually near bakery in safe server 1, otherwise somewhere else like safe server 2 or by myself in safe server 1.
+ㅤㅤㅤㅤㅤㅤUsually near bakery in safe server 1, otherwise somewhere else like safe server 2 or by myself in safe server 1.
