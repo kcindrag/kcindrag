@@ -1,4 +1,7 @@
-ㅤㅤㅤㅤㅤㅤ<img width="699" height="499" alt="image" src="https://github.com/user-attachments/assets/51c8e153-f430-4561-ac5f-a0f440bb7e52" />
+   <div align="center">
+
+
+<img width="699" height="499" alt="image" src="https://github.com/user-attachments/assets/51c8e153-f430-4561-ac5f-a0f440bb7e52" />
 
 My main focus' are disney channel for this specific github, I most likely will change my pfp for this here and there, but it will always be disney themed. 
 
