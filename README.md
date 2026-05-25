@@ -6,4 +6,10 @@
 
 
 
+[@𝓌ednedayaddamsss](https://github.com/wednesdayaddamsss)= main
 
+[𝑔uns.lol](https://guns.lol/witchinghr)⠀⠀⠀⠀ 𓏵 ⠀⠀⠀⠀[𝓅rns.cc](https://en.pronouns.page/@rosslynch)⠀⠀⠀⠀ 𓏵 ⠀⠀⠀⠀[𝓇entry](https://rentry.co/elevjanehopper)⠀⠀⠀⠀ 𓏵 ⠀⠀⠀⠀[𝓅rns.cc](https://pronouns.cc/@mmk)
+
+alts
+
+[@𝒷ylumax](https://github.com/bylumax)⠀ 𓏵 ⠀[@𝒮neaker𝒩ight𝒟ancer](https://github.com/SneakerNightDancer)⠀ 𓏵 ⠀[@𝓂eandmicheal](https://github.com/meandmicheal)⠀ 𓏵 ⠀[@𝓉een𝒷each𝓂ovie](https://github.com/teenbeachmovie)⠀ 𓏵 ⠀[@𝓈inger𝒶ustin](https://github.com/singeraustin)
