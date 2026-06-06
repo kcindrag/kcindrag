@@ -8,7 +8,7 @@
 
 [@𝓌ednedayaddamsss](https://github.com/wednesdayaddamsss)= main
 
-[𝑔uns.lol](https://guns.lol/witchinghr)⠀⠀⠀⠀ 𓏵 ⠀⠀⠀⠀[𝓅rns.cc](https://en.pronouns.page/@rosslynch)⠀⠀⠀⠀ 𓏵 ⠀⠀⠀⠀[𝓇entry](https://rentry.co/elevjanehopper)⠀⠀⠀⠀ 𓏵 ⠀⠀⠀⠀[𝓅rns.cc](https://pronouns.cc/@mmk)
+[𝑔uns.lol](https://guns.lol/witchinghr)⠀⠀⠀⠀ 𓏵 ⠀⠀⠀⠀[𝓅rns.cc](https://en.pronouns.page/@monstober)⠀⠀⠀⠀ 𓏵 ⠀⠀⠀⠀[𝓇entry](https://rentry.co/elevjanehopper)⠀⠀⠀⠀ 𓏵 ⠀⠀⠀⠀[𝓅rns.cc](https://pronouns.cc/@mmk)
 
 alts
 
