@@ -12,4 +12,4 @@
 
 alts
 
-[@𝒷ylumax](https://github.com/bylumax)⠀ 𓏵 ⠀[@𝒮neaker𝒩ight𝒟ancer](https://github.com/SneakerNightDancer)⠀ 𓏵 ⠀[@𝓂eandmicheal](https://github.com/meandmicheal)⠀ 𓏵 ⠀[@𝓉een𝒷each𝓂ovie](https://github.com/teenbeachmovie)⠀ 𓏵 ⠀[@𝓈inger𝒶ustin](https://github.com/singeraustin)
+[@𝓂ax𝒷lack](https://github.com/maxbIack)⠀ 𓏵 ⠀[@𝒮neaker𝒩ight𝒟ancer](https://github.com/SneakerNightDancer)⠀ 𓏵 ⠀[@𝓂eandmicheal](https://github.com/meandmicheal)⠀ 𓏵 ⠀[@𝓉een𝒷each𝓂ovie](https://github.com/teenbeachmovie)⠀ 𓏵 ⠀[@𝓈inger𝒶ustin](https://github.com/singeraustin)
